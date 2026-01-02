@@ -94,5 +94,5 @@ We welcome contributions! If you find any issues or have suggestions for improve
 You can reach me through:  
 
 - **YouTube** – Leave a comment on the videos.  
-- **LinkedIn** – [Connect with me](https://www.linkedin.com/in/imadsaddik/).  
-- **Email** – [simad3647@gmail.com](mailto:simad3647@gmail.com).  
+- **LinkedIn** – [Connect with Imad Saddik](https://www.linkedin.com/in/imadsaddik/).  
+- **Email Imad** – [simad3647@gmail.com](mailto:simad3647@gmail.com).  
